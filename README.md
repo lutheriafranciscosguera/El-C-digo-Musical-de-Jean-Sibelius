@@ -1,1 +1,1 @@
-# El-C-digo-Musical-de-Jean-Sibelius
+Jean Sibelius, desde su nacimiento en 1865 en Hameenlinna, ha sido una figura central en la música finlandesa. Su legado, influenciado por estudios en Berlín y Viena y conexiones como Busoni, sigue inspirando a generaciones.
